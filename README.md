@@ -1,0 +1,1 @@
+# AtivAvaliativa2---Programa-o-Paralela
